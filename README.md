@@ -1,1 +1,1 @@
-# Homework3
+obieqtze orientirebuli programirebaze mushaoba, klasebis sheqmna da mrtodrbid gamoyeneba(sheqmna)
